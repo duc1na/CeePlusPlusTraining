@@ -1,2 +1,4 @@
-# learning how to code atm
-veri nub coding momento fr
+# c++ trainin
+wtf is a pointer fr 🔥🔥🔥
+
+
